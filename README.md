@@ -6,3 +6,5 @@
 
 ![pg2](https://user-images.githubusercontent.com/39272194/52085071-a8d8b600-258a-11e9-9681-1b78b144e339.gif)
 
+![share](https://user-images.githubusercontent.com/39272194/52085282-3a482800-258b-11e9-82e6-6f3c2342eea8.gif)
+
